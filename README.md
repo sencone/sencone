@@ -1,0 +1,2 @@
+- 👋 Selam ben,@sencone
+- 👀 Çevremdeki herkes beni yazılımcı sanıyor ancak hiçbir şey bildiğim yok, şimdi ise anonim olarak onları haklı çıkarmak için buradayım!
